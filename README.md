@@ -1,2 +1,2 @@
-# Aaditiya-kansal
+# Aaditiyakansal
 About me
